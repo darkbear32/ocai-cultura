@@ -1,1 +1,0 @@
-# ocai-cultura
